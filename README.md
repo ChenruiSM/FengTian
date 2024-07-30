@@ -34,16 +34,19 @@ v圈抽象：东雪莲，猫雷，徐toso，东洋雪莲，孙笑川，Otto电�
 <br>还有很多无法展示的Tag，但是相比你肯定有重复的成分吧……（如果没有那就太可惜了）
 
 ___
-###  🧐社团相关链接
-
-[社长B站~~黑历史~~账号](https://space.bilibili.com/526290225?&unique_k=2333)
-<br>[社团暂定试运营活动B站账号](https://space.bilibili.com/526290225?&unique_k=2333)
 
 ###  😋社团成员
 名称 | 负责内容
 ---- | ---
 PiAiou/虚伪的東雪莲 | 废物社长/流媒体制作
 间云 |  插画
+
+###  🧐社团相关链接
+
+[社长B站~~黑历史~~账号](https://space.bilibili.com/526290225?&unique_k=2333)
+<br>[社团暂定试运营活动B站账号](https://space.bilibili.com/526290225?&unique_k=2333)
+
+
 <br>
 <br>
 <br>
