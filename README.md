@@ -81,8 +81,8 @@ Embers |  摄像
 ---- | ---
 社长B站~~黑历史~~账号 | [丕乂区Official](https://space.bilibili.com/526290225?&unique_k=2333)
 社团暂定试运营活动B站账号 |  [奉天冰社](https://b23.tv/CRUH1Ty)
-社团官网 |  [点击直达](奉天冰社.top)
+社团官网 |  [点击直达](http://xn--37qy5pzc800m.top/)
 
 <br>
 <br>
-<br>编辑时间：2024/8/8/17:52
+<br>编辑时间：2024/8/8/17:53
